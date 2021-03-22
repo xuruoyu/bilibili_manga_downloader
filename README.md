@@ -9,3 +9,5 @@
 # 后期计划
 * 下载后转换为mobi格式，便于kindle阅读
 * 自动下载一整本漫画
+
+[http://hentaix.cn/B%E7%AB%99%E6%BC%AB%E7%94%BB%E7%88%AC%E8%99%AB%E5%AE%9E%E6%88%98/](http://hentaix.cn/B%E7%AB%99%E6%BC%AB%E7%94%BB%E7%88%AC%E8%99%AB%E5%AE%9E%E6%88%98/)
